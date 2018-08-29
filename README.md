@@ -1,2 +1,1 @@
-lol kek cheburek
-i'a ni pridelal checker =( uzai tret'y laby!!!
+итмо кт 1к домашние задания по курсу c++
